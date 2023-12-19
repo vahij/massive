@@ -1,0 +1,1 @@
+The Popsicle was invented by 11 year-old Frank Epperson in 1905. He left his drink outside with a stir stick in it and he noticed that it had frozen. He applied for a patent in 1923 and named it "Epsicle." The name was later changed to Popsicle
