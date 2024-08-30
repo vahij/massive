@@ -1,0 +1,1 @@
+A Connecticut Toy maker, Herobuilders, sells action figures of President George W. Bush, Islamic militant Osama bin Laden, New York Mayor Rudolph Giuliani and British Prime Minister Tony Blair, which are all major figures tied to the September 11, 2001 WTC attacks
